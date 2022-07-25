@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @Pushmataha
-- 👀 I’m interested in LOUISIANA PURCHASE VIA NAPOLEON & MADISON UNSETTLED LAW!...
+- 👀 I’m interested in LOUISIANA PURCHASE VIA NAPOLEON & THOMAS JEFFERSON
+UNSETTLED LAW!...
 - 🌱 I’m currently learning ...HARVARD YALE COMPUTER SCIENCE 50
 - 💞️ I’m looking to collaborate on ..ENVIRONMENT-RESTORATION GULF-OF-MEXICO-ST.LAWERENCE SEAWAY!.
 - 📫 How to reach me ...jamerson.rickey@yahoo.com
